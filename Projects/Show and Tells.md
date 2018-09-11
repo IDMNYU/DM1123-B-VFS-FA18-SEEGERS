@@ -20,6 +20,18 @@ Tuesdays • 12:30-4:10PM • 2MTC MAGNET 811 • 3 credit hrs
 * Each team member should bring in at least 6 or more digital examples of the work of your chosen artist, designer, or collective for a total of at least 12 images.
 * Be familiar with a brief bio (or overview) and be prepared to CRITICALLY discuss your assigned artist, designer, or collective and their supporting work in an engaging presentation in front of the class. 
 
+**Tuesday, Sept 18**
+- John Ceballo & Egret Liu - Paula Scher
+- Janesa Chan & Denis Ciocan - Muriel Cooper
+- Crystal Chen & Sophia Cohen - Sophie Tauber-Arp
+- Uma Dhamija & Eddie Yi - Josef Muller-Brockman
+
+**Tuesday, Sept 25**
+- Jenni Funt & Luke Koppenheffer - Barbara Krueger
+- JiYoung Moon & Alex Santarelli - Peter Saville
+- Chris Zhang & Rebecca Wng - Andy warhol
+- Claudia Shao - Shepard Fairey
+
 **Artists, Designers & Collectives:**
 
 * Peter Saville (music / punk aesthetic)
