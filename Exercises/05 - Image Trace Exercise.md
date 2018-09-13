@@ -11,7 +11,7 @@ Tuesdays • 12:30-4:10PM • 2MTC MAGNET 811 • 3 credit hrs
 
 ### Class Exercise: Image Trace
 
-**Post to the #exercise-imgtrace**
+**Post to the #exercise-image-trace**
 
 Choose a crop from Hieronymous Bosch's Garden of Earthly Delights, here: https://tuinderlusten-jheronimusbosch.ntr.nl/en
 
