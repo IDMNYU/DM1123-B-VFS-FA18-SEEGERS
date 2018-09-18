@@ -31,6 +31,8 @@ Tuesdays • 12:30-4:10PM • 2MTC MAGNET 811 • 3 credit hrs
 - JiYoung Moon & Alex Santarelli - Peter Saville
 - Chris Zhang & Rebecca Wng - Andy warhol
 - Claudia Shao - Shepard Fairey
+- Joey Cabrera - David Carson
+
 
 **Artists, Designers & Collectives:**
 
