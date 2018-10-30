@@ -13,6 +13,11 @@ Tuesdays • 12:30-4:10PM • 2MTC MAGNET 811 • 3 credit hrs
 
 Your final logo in color in a physical, applied state (i.e. packaging, signage, apparel, business cards, stickers, poster announcing an event etc.). Your choice for your logo’s applied state is up to you. You decide. There are literally hundreds of possible applied states. 
 
+## DUE DATES:
+- 1st Draft: November 6
+- 2nd Draft: November 13
+- Final Draft: December 11 (our **FINAL** class)
+
 #### Physical Application 1st Draft    
 Post in the #project-physapp channel on Slack
 
